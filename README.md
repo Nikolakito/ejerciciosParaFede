@@ -1,2 +1,2 @@
 # ejerciciosParaFede
-Empece el día 15 de agosto
+Empecé el día 15 de agosto
